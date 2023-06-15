@@ -1,4 +1,9 @@
 ### Hi there 👋
+★VaultMC★ is a Minecraft server amazing wich have Many mini games fun and challenges and bedwars custom maps. what are you waiting for ? enjoy playing it
+
+-💫join official VaultMc server for more informations
+-🌹https://dsc.gg/vaultmc
+
 
 <!--
 **VaultMc/VaultMc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
